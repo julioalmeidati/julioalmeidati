@@ -1,4 +1,4 @@
-👋 Hi, I'm Julio Almeida(@julioalmeidati), 38 years old.
+👋 Hi, I'm Julio Almeida(@julioalmeidati). I'm 38 years old.
 
 👀 I have like 20 years of professional experience, but I'm a rookie here. 
    
