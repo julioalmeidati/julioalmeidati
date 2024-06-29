@@ -1,12 +1,12 @@
-👋 Hi, I'm Julio Almeida(@julioalmeidati). I'm 38 years old.
+👋 Hi, I'm Julio Almeida(@julioalmeidati). I'm 39 years old.
 
 👀 I have like 20 years of professional experience, but I'm a rookie here. 
    
-💪 I'm a Computer Science graduate, I have an MBA in Business Management, and I'm part of the dream team that won the Future Executive Leader 91 award, certified by 'Crescimentum' company. 
+💪 I have a Bachelor's degree in Computer Science, an MBA in Business Management, and I'm part of the dream team that won the Future Executive Leader 91 award, certified by 'Crescimentum' company. 
    
 ❤️ Oh, and I'm married to Natalia, but we still don't have mini-humans.
    
-🚀 Right now, I'm chasing English fluency and doing a post-graduation in Cloud Computing by XP Educação, and the Full Cycle 3.0 certification, which is practically another post-graduation. 
+🚀 Right now, I'm chasing English fluency and the Full Cycle 3.0 certification, which is practically another post-graduation. 
   
 🤘 I breathe technology every single day, no matter which one, as long as it solves business problems more easily and quickly.
 
