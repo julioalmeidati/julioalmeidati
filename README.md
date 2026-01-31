@@ -1,26 +1,23 @@
-👋 Hi, I'm Julio Almeida(@julioalmeidati). I'm 39 years old.
+👋 Hi, I'm Julio Almeida(@julioalmeidati). I'm 41 years old.
 
-👀 I have like 20 years of professional experience, but I'm a rookie here. 
+👀 I’ve got about 20 years of professional experience, but I’m still a rookie here. 
    
-💪 I have a Bachelor's degree in Computer Science, an MBA in Business Management, and I'm part of the dream team that won the Future Executive Leader 91 award, certified by 'Crescimentum' company. 
+💪 I hold a Bachelor’s degree in Computer Science and an MBA in Business Management, and I was part of the award-winning team recognized with the Future Executive Leader 91 award by Crescimentum. 
    
-❤️ Oh, and I'm married to Natalia, but we still don't have mini-humans.
+❤️ Oh, and I'm happily married to Natalia — no mini-humans yet!
    
-🚀 Right now, I'm chasing English fluency and the Full Cycle 3.0 certification, which is practically another post-graduation. 
+🚀 I'm currently pursuing English fluency while continuously learning through Full Cycle (3.0 and 4.0), an e-learning platform that regularly releases updated content across both versions on cutting-edge software architecture and development practices to stay ahead of market trends. 
   
-🤘 I breathe technology every single day, no matter which one, as long as it solves business problems more easily and quickly.
+🤘 I live and breathe technology every day — any tool or approach that solves business problems more efficiently and effectively.
 
-And, of course, 
-
-I rely on my superpower of  friendship,
-
-where my friends and teams face the most hairy challenges with me, but they seem like a piece of cake when we're together 👊👊👊.
+And, of course, I rely on my superpower: friendship.
+My friends and teams tackle the toughest challenges alongside me — challenges that seem like a piece of cake when we're together. 👊👊👊.
   
-Give me a hand, leave a 🌟🌟🌟... that way, I'll be pumped to keep going and release the most diverse topics and, of course, learn from you every single day. 
+Give me a hand — leave a 🌟🌟🌟!
+That way, I'll stay pumped to keep sharing diverse topics and, of course, learning from you every single day.
   
-You can count on me for whatever you need, bros!
-
-Get in touch with me 
+You can count on me for whatever you need, folks!
+Get in touch anytime.
 
 📫 julioalmeidati@gmail.com 
 <p><img src="https://thumbnail.imgbin.com/21/8/18/imgbin-whatsapp-logo-scalable-graphics-icon-whatsapp-free-gfH3cEr3thuinVcsfVjdViXJp_t.jpg" width="17px" height="17px"/> +55 11 98035-1967</p>
